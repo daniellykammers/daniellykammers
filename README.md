@@ -2,7 +2,7 @@
 
 ### Frontend Developer at Eltok
 
-🇧🇷 Born in Major Gercino - Brazil, living in Florianópolis - Brazil
+🇧🇷 Living in Florianópolis - Brazil
 
 Making codes since 2019, passionate about technology and coffee since 2002.
 

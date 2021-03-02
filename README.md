@@ -1,7 +1,7 @@
 
 ## Danielly C. Kammers
 
-### Frontend Developer at Eltok
+### Desenvolvedora Júnior at JDrel Sistemas
 
 📍 Living in Florianópolis - Brazil
 

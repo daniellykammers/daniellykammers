@@ -1,7 +1,7 @@
 
 ## Danielly C. Kammers
 
-### Desenvolvedora Júnior at JDrel Sistemas
+### Desenvolvedora Júnior at JDREL
 
 📍 Living in Florianópolis - Brazil
 
